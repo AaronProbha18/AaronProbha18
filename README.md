@@ -1,1 +1,1 @@
-![Kendall Roy Succession GIF](https://tenor.com/pQ0Yj9DcXWW.gif)
+![Kendall Roy Succession GIF](kendall.gif)
